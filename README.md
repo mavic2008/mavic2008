@@ -1,4 +1,4 @@
 # Bem vindo ao meu perfil me chamo Maaria Vitoria
 
 Gosto de assistir animes meu favorito e Jujutsu Kaisem
-![gojo](portalcmais.com.br/wp-content/uploads/2024/04/Design-sem-nome-10.png)
+![Gojo](https://pop.proddigital.com.br/wp-content/uploads/sites/8/2024/07/01-1.jpg)
